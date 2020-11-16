@@ -4,4 +4,4 @@ Attributed to John Stuart Mill (1806-1873).
 
 Wrongly attributed to Edmund Burke!
 
-Mill spoke 2 languages.
+Mill was fluent in 2 languages, and understood 2 more.
