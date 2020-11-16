@@ -2,6 +2,6 @@ Bad men need nothing more to compass their ends, than that good men should look 
 
 Attributed to John Stuart Mill (1806-1873).
 
-Wrongly attributed to Edmund Burke!
+Wrongly attributed to Edmund Burke!https://app.smartsheet.com/folders/personal
 
-Mill was fluent in 2 languages, and understood 2 more.
+Mill spoke multiple languages and understood 2 more.
